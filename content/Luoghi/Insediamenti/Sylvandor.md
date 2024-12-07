@@ -1,4 +1,4 @@
-*Villaggio Elfico*
+*Villaggio Elfico Medio*
 
 ![[sylvandor.png]]
 
