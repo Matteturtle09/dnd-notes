@@ -1,4 +1,4 @@
-*Villaggio Grung*
+*Villaggio Grung Medio*
 
 ![[grungpale.png]]
 ## Governo
